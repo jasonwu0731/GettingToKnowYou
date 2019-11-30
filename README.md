@@ -1,3 +1,1 @@
 # GettingToKnowYou
-
-Coming soon...
